@@ -1,2 +1,2 @@
 # rocket-animation
-lol high guys
+lol
